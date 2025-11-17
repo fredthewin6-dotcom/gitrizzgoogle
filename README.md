@@ -1,2 +1,2 @@
 # gitrizzgoogle
-https://plaicraft.ai/e/834a743ecd6beb0b?c=ZnJlZHRoZXdpbjZAZ21haWwuY29t
+https://plaicraft.ai/e/1b8532060f5d9013?c=ZnJlZHRoZXdpbjZAZ21haWwuY29t
