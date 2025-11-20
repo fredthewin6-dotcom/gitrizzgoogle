@@ -1,2 +1,2 @@
 # gitrizzgoogle
-https://webv0.vercel.app/website-data/prx-177/svelte.html
+https://plaicraft.ai/e/4c2b8d5c15cabcb2?c=ZnJlZHRoZXdpbjZAZ21haWwuY29t
